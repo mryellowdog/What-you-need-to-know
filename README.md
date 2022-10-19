@@ -1,4 +1,4 @@
-#notice
+# notice
 I've just noticed that I do not enjoy writing news headlines as much as I thought, so for the time being I am done with writing articles, but please if you are interested, please send me over an article.
 
 # What-you-need-to-know
